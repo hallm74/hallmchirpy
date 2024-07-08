@@ -22,7 +22,7 @@ image:
 
 After the call, Beyer reaffirmed his support for Biden in a statement.
 > "I support President Biden,"
-> "I support the Biden-Harris ticket, and look forward to helping defeat Donald Trump in November."
+> "I support the Biden Harris ticket, and look forward to helping defeat Donald Trump in November."
 
 Beyer and Himes did not immediately respond to requests for comment.
 
